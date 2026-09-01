@@ -1,0 +1,1 @@
+Everyone is just like Someone.
